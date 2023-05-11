@@ -13,3 +13,8 @@ but when he touched the food, It had turned to gold!
 He picked up his water but the glass turned to gold as did the water when it reached him.
 His daughter had rushed to him and had ran into his arms.
 but when he hugged her back,she too had turned into gold.
+
+
+The fairy appeared to him,berating him for his greed.
+He pleaded for his power to be taken away and for all he had touched to turn back.
+The fairy did so and taught him a lesson for his greed.
